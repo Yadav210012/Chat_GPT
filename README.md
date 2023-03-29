@@ -26,4 +26,4 @@ Now Run The Bot
 
 After Complete This Process Your Bot Will Work
 
-[Subscribe Us On Youtube](https://youtube.com/@Armanidrisi1)
+[Join Telegram ](https://t.me/+2C83L6iB6XoyZWI9)
